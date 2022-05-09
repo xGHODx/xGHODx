@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @xGHODx
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ... fuck thing up
+- 🌱 I’m currently learning ... fuck things up
 - 💞️ I’m looking to collaborate on SHUSH
 - 📫 How to reach me.. suck my dick
 
